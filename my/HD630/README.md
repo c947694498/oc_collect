@@ -1,0 +1,1 @@
+GIGABYTE Z390 Gaming X + i7 9700k + OC6.2
