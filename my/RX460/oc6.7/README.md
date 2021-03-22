@@ -1,0 +1,1 @@
+GIGABYTE Z390 Gaming X + i7 9700k +  RX460 + OC6.7
